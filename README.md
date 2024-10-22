@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @che0one
+- 👀 Cybersecurity Specialist | Ethical Hacker | Bug Bounty Hunter | RedTeam | Web3 | DevSecOps | Reverse Engineer with years of dev. exp..
+- 🌱 Currently on Full-Time Bug Bounty.
+- Closed for Collab. and Opportunities...
